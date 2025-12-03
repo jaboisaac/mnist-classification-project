@@ -1,4 +1,4 @@
-# Grooup Members
+# Group Members
 Idayat Sanni
 Aqsa Bagwan
 Deo Kanyinda Gracias
